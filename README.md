@@ -6,7 +6,9 @@ Your child's top focus should be dental upkeep when it comes to health. Establis
 
 Importance of Pediatric Dentistry
 
-Pediatric dentist experience two to three years of specific training following dental school to get a better understanding of children's mouth health. They have specialized in regulating children's behavior and making them comfortable during dental exams.
+[**Pediatric dentist**](https://www.jaijinendradentalhospital.com/
+![image](https://github.com/user-attachments/assets/fdc9826e-8713-4fb6-946a-697086f2c7fb)
+) experience two to three years of specific training following dental school to get a better understanding of children's mouth health. They have specialized in regulating children's behavior and making them comfortable during dental exams.
 
 
 
@@ -44,7 +46,9 @@ Jai Jinendra Dental Hospital offers a myriad of pediatric dental care services w
 
 Education and Preventive Guidance
 
-Education is a cornerstone of juvenile dental treatment at Jai Jinendra Dental Hospital. The experts take the time to educate youngsters about the benefits of oral health and how to brush and floss correctly. They also give parents with important recommendations on how to manage their child’s oral health at home, such as dietary guidance and aid on preventing tooth mishaps.
+Education is a cornerstone of juvenile dental treatment at Jai Jinendra [**Dental Hospital**](https://www.jaijinendradentalhospital.com/
+![image](https://github.com/user-attachments/assets/32c8e06d-5bd6-48f2-ac2f-c54e8bac1320)
+). The experts take the time to educate youngsters about the benefits of oral health and how to brush and floss correctly. They also give parents with important recommendations on how to manage their child’s oral health at home, such as dietary guidance and aid on preventing tooth mishaps.
 
 
 
